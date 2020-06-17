@@ -1,1 +1,0 @@
-# Cumulative_conjunction_complete
